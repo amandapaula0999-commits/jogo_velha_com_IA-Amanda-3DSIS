@@ -8,7 +8,8 @@
  
 
                                 Resultado 
-<img width="998" height="818" alt="image" src="https://github.com/user-attachments/assets/5740fd76-ce7a-48dc-9b50-a6fb2f6e3b6a" />
+<img width="714" height="551" alt="image" src="https://github.com/user-attachments/assets/6b7fbb38-7ab5-4cd1-a661-0cecf406bd96" />
+
 
 
                                      fim da jogado/ quem venceu 
